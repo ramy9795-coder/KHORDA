@@ -1,0 +1,2 @@
+# KHORDA
+store like steam
